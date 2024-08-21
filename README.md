@@ -2,7 +2,7 @@
 - 👀 I’m interested desenvolver um sistema que digitalize o mundo espiritual  
 - 🌱 I’m currently learning análise e desenvolvimento de sistemas 
 - 💞️ I’m looking to collaborate on um mundo melhor
-- 📫 How to reach me andreycainamacedoleite@gmail.com
+- 📫 How to reach me 91 9 83178567 
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: se existir essa possibilidade
   digamos que eu sou um homem trans judeu.
