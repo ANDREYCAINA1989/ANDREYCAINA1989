@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ANDREYCAINA1989
-- 👀 I’m interested desenvolver um sistema que digitalize o mundo espiritual  
+- 👀 I’m interested desenvolver um sistema onde as pessoas não precisem de religião e todos possamos nos conectar à espiritualidade de forma livre de dogmas e instituições 
 - 🌱 I’m currently learning análise e desenvolvimento de sistemas 
-- 💞️ I’m looking to collaborate on um mundo melhor
+- 💞️ I’m looking to collaborate on mundo mais leve, onde a tecnologia solucionará problemas sociais, culturais, étnicos e a fins  
 - 📫 How to reach me 91 9 83178567 
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: se existir essa possibilidade
